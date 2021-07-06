@@ -1,1 +1,1 @@
-# Ginger-bruh
+# Gingerbruh
